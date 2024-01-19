@@ -35,7 +35,19 @@ https://www.youtube.com/watch?v=t3qc5yuqqVs
 
 Oh yeah, which one? 
 
+It's a wonderful life when the only people you're left only causes harm. What does that do to the mind? Call that motivation? Call that positive thinking? Really? Wow! Actions speak louder than words.  
 
+- [x] Do things that threaten their safety and well-being
+- [x] Provide them with no real answers or relief  
+- [x] Keep them in a state of constant threat
+- [x] Turn them into a nervous wreck for many years
+- [x] Alienate and isolate them from the little support they did have
+- [x] Actually, make them fully aware and fully feel that they're completely alone 
+- [x] Do absolutely nothing to break the loop
+- [x] Their actions do not match their words 
+- [x] Block them from seeking relief
+- [x] Lead them to believe things that aren't true
+- [x] Punish them whenever they attempt to seek relief
+- [x] Withhold critical knowledge 
 
-
-
+Negavity or positivty is a direct result from real action and lack thereof. Unsound methods are not ok. Cognitive dissonance is not ok. Brain damage is not ok. Insanity is not ok. Treat people right if you want positive outcomes.
