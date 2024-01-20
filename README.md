@@ -51,3 +51,9 @@ It's a wonderful life when the only people you're left only causes harm. What do
 - [x] Withhold critical knowledge 
 
 Negavity or positivty is a direct result from real action and lack thereof. Unsound methods are not ok. Cognitive dissonance is not ok. Brain damage is not ok. Insanity is not ok. Treat people right if you want positive outcomes.
+
+https://www.youtube.com/shorts/tHUEdbhS-nM
+
+With age comes wisdom. A damn shame his words are true. 
+
+https://www.youtube.com/shorts/CuCmtoeUZR4
