@@ -57,3 +57,20 @@ https://www.youtube.com/shorts/tHUEdbhS-nM
 With age comes wisdom. A damn shame his words are true. 
 
 https://www.youtube.com/shorts/CuCmtoeUZR4
+
+https://www.psychologytoday.com/us/blog/extreme-fear/201010/the-nervous-breakdown-myth
+
+" the class, sensing her emotional frailty, responded as a pack of rabid adolescents predictably would: we relentlessly back-talked and baited her,"
+
+The article should've noted that adults mirror the same behavior.
+
+"Mechanical failure" 
+
+'feeling as if "walking through thick sand weighed down by a dozen wet blankets."'
+
+People in such condition are unfit for employment, and are otherwise swiftly fired. We know what happens when these people ask for help. Monsters in sheep's clothing are everywhere, especially in the so called health care community. 
+
+https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7774817/
+
+Brain damage from psychological terrorism is real. 
+
