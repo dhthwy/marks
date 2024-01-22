@@ -74,3 +74,7 @@ https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7774817/
 
 Brain damage from psychological terrorism is real. 
 
+https://www.sciencedaily.com/releases/2022/01/220107100652.htm - Why people deceive themselves
+
+
+
