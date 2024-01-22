@@ -76,5 +76,4 @@ Brain damage from psychological terrorism is real.
 
 https://www.sciencedaily.com/releases/2022/01/220107100652.htm - Why people deceive themselves
 
-
-
+https://owlcation.com/humanities/Differences-between-Marionettes-Puppets-and-Ventriloquists-Figures-Dummies
