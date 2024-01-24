@@ -79,3 +79,18 @@ https://www.sciencedaily.com/releases/2022/01/220107100652.htm - Why people dece
 https://owlcation.com/humanities/Differences-between-Marionettes-Puppets-and-Ventriloquists-Figures-Dummies
 
 https://www.psychologytoday.com/us/blog/the-path-passionate-happiness/202111/26-reasons-be-proud-yourself
+
+https://www.youtube.com/watch?v=_Rkd5RJ5MXo  --  This thing in the video isn't a man. It's slimy scum. Making someone out to be that guy is the most destructive, the most purpose crushing, and the most discusting thing one can do. There is nothing lower.
+
+https://trendsnewsline.com/2023/09/19/warrior-embracing-death-the-battle-ends-leaving-a-masterless-man/
+
+https://www.youtube.com/shorts/OhhejSoMDuE
+
+https://www.goodreads.com/quotes/427915-when-the-snows-fall-and-the-white-winds-blow-the
+
+
+
+
+
+
+
