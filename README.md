@@ -88,6 +88,11 @@ https://www.youtube.com/shorts/OhhejSoMDuE
 
 https://www.goodreads.com/quotes/427915-when-the-snows-fall-and-the-white-winds-blow-the
 
+https://www.goodreads.com/quotes/537037-any-man-can-make-mistakes-but-only-an-idiot-persists
+
+https://medium.com/@efaja/ciceros-six-mistakes-of-man-303ed8d4106f
+
+"Rejoice in the wife of your youth. Look at her. She is that girl you married back when you both were young. The passing years have no power to change that tender reality. You're young forever with her."
 
 
 
