@@ -94,7 +94,19 @@ https://medium.com/@efaja/ciceros-six-mistakes-of-man-303ed8d4106f
 
 "Rejoice in the wife of your youth. Look at her. She is that girl you married back when you both were young. The passing years have no power to change that tender reality. You're young forever with her."
 
+https://www.khanacademy.org/ -- I'm not a huge fan of khan's lessons, but it's a great site for practice and knowledge testing.
 
+https://www.youtube.com/user/professorleonard57 -- Basic math to college level, stats
+
+https://www.youtube.com/user/patrickJMT -- math
+
+https://www.youtube.com/@MichelvanBiezen/featured -- physics, math
+
+https://www.youtube.com/@TheOrganicChemistryTutor/featured
+
+Takes roughly a year from zero to be able to do calculus or linear algebra. After that, more advanced topics might each take a year. I wish I had these resources. For med school, getting exposed to tough subjects like organic chemistry early on is a boon. The key is finding a teacher who teaches in a way that clicks with your mind. 
+
+https://generallythinking.com/richard-feynman-on-thinking-processes-did-he-know-nothing-about-psychology-v/
 
 
 
