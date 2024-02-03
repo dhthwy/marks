@@ -114,3 +114,4 @@ https://www.youtube.com/watch?v=sPCiv1WN9k0 -- short summary for above lecture.
 
 https://www.youtube.com/watch?v=vtIzMaLkCaM -- LEADERSHIP LAB: The Craft of Writing Effectively. 
 
+https://www.susanjfowler.com/blog/2017/2/19/reflecting-on-one-very-strange-year-at-uber  -- typical tech company. She don't work in tech anymore.
