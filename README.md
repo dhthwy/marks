@@ -110,4 +110,7 @@ https://generallythinking.com/richard-feynman-on-thinking-processes-did-he-know-
 
 https://www.youtube.com/watch?v=IlU-zDU6aQ0 -- Marty Lobdell - Study Less Study Smart
 
+https://www.youtube.com/watch?v=sPCiv1WN9k0 -- short summary for above lecture.
+
+
 
