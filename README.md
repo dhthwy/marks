@@ -112,5 +112,5 @@ https://www.youtube.com/watch?v=IlU-zDU6aQ0 -- Marty Lobdell - Study Less Study 
 
 https://www.youtube.com/watch?v=sPCiv1WN9k0 -- short summary for above lecture.
 
-
+https://www.youtube.com/watch?v=vtIzMaLkCaM -- LEADERSHIP LAB: The Craft of Writing Effectively. 
 
