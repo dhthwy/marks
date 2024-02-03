@@ -108,6 +108,6 @@ Takes roughly a year from zero to be able to do calculus or linear algebra. Afte
 
 https://generallythinking.com/richard-feynman-on-thinking-processes-did-he-know-nothing-about-psychology-v/
 
-
+https://www.youtube.com/watch?v=IlU-zDU6aQ0 -- Marty Lobdell - Study Less Study Smart
 
 
