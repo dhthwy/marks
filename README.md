@@ -112,6 +112,10 @@ https://www.youtube.com/watch?v=IlU-zDU6aQ0 -- Marty Lobdell - Study Less Study 
 
 https://www.youtube.com/watch?v=sPCiv1WN9k0 -- short summary for above lecture.
 
-https://www.youtube.com/watch?v=vtIzMaLkCaM -- LEADERSHIP LAB: The Craft of Writing Effectively. 
+https://www.youtube.com/watch?v=vtIzMaLkCaM -- LEADERSHIP LAB: The Craft of Writing Effectively.
+
+https://buomsoo-kim.github.io/learning/2020/03/30/Craft-of-writing-effectively.md/ -- notes for leadership lab
 
 https://www.susanjfowler.com/blog/2017/2/19/reflecting-on-one-very-strange-year-at-uber  -- typical tech company. She don't work in tech anymore.
+
+https://www.youtube.com/watch?v=qQazIzhFd4w -- Wayne Goss makeup artist
