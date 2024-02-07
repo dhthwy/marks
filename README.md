@@ -121,3 +121,5 @@ https://www.susanjfowler.com/blog/2017/2/19/reflecting-on-one-very-strange-year-
 https://www.youtube.com/watch?v=qQazIzhFd4w -- Wayne Goss makeup artist
 
 https://www.youtube.com/watch?v=WeDHZWS5uMo
+
+https://news.ycombinator.com/item?id=38106006 -- $150k for fixing an apple bug. She's really good and still very young (not even college age, I think). She's surrounded by people (in RL especially) who are into the same stuff. Getting to the level of understanding where one can do that really comes from team effort. And I believe you really need to find that team while you're young before age attaches too many strings.
