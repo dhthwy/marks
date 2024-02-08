@@ -123,3 +123,11 @@ https://www.youtube.com/watch?v=qQazIzhFd4w -- Wayne Goss makeup artist
 https://www.youtube.com/watch?v=WeDHZWS5uMo
 
 https://news.ycombinator.com/item?id=38106006 -- $150k for fixing an apple bug. She's really good and still very young (not even college age, I think). She's surrounded by people (in RL especially) who are into the same stuff. Getting to the level of understanding where one can do that really comes from team effort. And I believe you really need to find that team while you're young before age attaches too many strings.
+
+![1669969460439](https://github.com/dhthwy/marks/assets/302825/8767d4c6-f8fe-4337-9eb9-a519e7feaaee)
+
+https://genius.com/Charley-crockett-im-just-a-clown-lyrics
+
+https://genius.com/Tears-for-fears-mad-world-lyrics
+
+
