@@ -130,4 +130,10 @@ https://genius.com/Charley-crockett-im-just-a-clown-lyrics
 
 https://genius.com/Tears-for-fears-mad-world-lyrics
 
+https://www.chroniclelive.co.uk/news/north-east-news/gateshead-stalker-bombarded-woman-unwanted-28614850
 
+https://www.goodreads.com/quotes/76260-there-is-no-reciprocity-men-love-women-women-love-children
+
+https://2girls1cup.ca/
+
+https://www.youtube.com/watch?v=iXaw70X7wb4
