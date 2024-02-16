@@ -138,4 +138,4 @@ https://2girls1cup.ca/
 
 https://www.youtube.com/watch?v=iXaw70X7wb4
 
-https://rentprep.com/blog/tenant-screening-news/the-landlord-guide-to-charging-rental-application-fees/ --  This is rental but lots of companies out there bill app or bg fees and then ghost. The worst ones will give you a take home test. The test is actually production work. Especially rampant in I.T. field. I guess as one gets older you realize that the world is just a game of who can scam the best. The poor people work for $$, the rich people know how to get $$ without doing the work.
+https://rentprep.com/blog/tenant-screening-news/the-landlord-guide-to-charging-rental-application-fees/ --  This is rental but lots of companies out there bill app or bg fees and then ghost. The worst ones will give you a take home test. The test is actually production work. Especially rampant in I.T. field. I guess as one gets older you realize that the world is just a game of who can scam the best. The poor people work for money, the rich people know how to get money without doing the work.
