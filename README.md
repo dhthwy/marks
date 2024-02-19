@@ -145,3 +145,17 @@ Beer money:
 https://www.doctorofcredit.com/a-beginners-guide-to-bank-account-bonuses/
 
 https://www.doctorofcredit.com/beginners-guide-credit-card-bonuses/
+
+Free Equifax FICO 8 at myfico.com
+
+Free Experian FICO 8 at experian.com
+
+Free ChexSystems data included in free report at transunion.com
+
+CR freezing
+
+https://www.transunion.com/credit-freeze
+
+https://www.equifax.com/personal/credit-report-services/credit-freeze/
+
+https://www.experian.com/freeze/center.html
