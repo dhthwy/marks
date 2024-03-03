@@ -163,3 +163,5 @@ https://www.experian.com/freeze/center.html
 https://www.ncbi.nlm.nih.gov/books/NBK499861/
 
 https://genius.com/Charley-crockett-im-just-a-clown-lyrics
+
+https://www.boredpanda.com/homeless-survival-advice/
