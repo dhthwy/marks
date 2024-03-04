@@ -165,3 +165,9 @@ https://www.ncbi.nlm.nih.gov/books/NBK499861/
 https://genius.com/Charley-crockett-im-just-a-clown-lyrics
 
 https://www.boredpanda.com/homeless-survival-advice/
+
+https://skillsforchange.com/coworker-is-nice-to-everyone-but-me/
+
+https://pethelpful.com/dogs/Chemical-Castration-Versus-Surgical-Castration-in-Dogs
+
+https://www.goodreads.com/book/show/35344615-my-worthless-heart
