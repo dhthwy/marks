@@ -171,3 +171,9 @@ https://skillsforchange.com/coworker-is-nice-to-everyone-but-me/
 https://pethelpful.com/dogs/Chemical-Castration-Versus-Surgical-Castration-in-Dogs
 
 https://www.goodreads.com/book/show/35344615-my-worthless-heart
+
+https://www.goodreads.com/quotes/12044365-you-awakened-something-inside-myself-i-never-knew-existed-see
+
+https://the-line-up.com/michael-swango
+
+https://nypost.com/2013/10/31/my-boss-made-me-impotent-complaint/
