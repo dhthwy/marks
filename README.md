@@ -177,3 +177,5 @@ https://www.goodreads.com/quotes/12044365-you-awakened-something-inside-myself-i
 https://the-line-up.com/michael-swango
 
 https://nypost.com/2013/10/31/my-boss-made-me-impotent-complaint/
+
+![](https://media1.tenor.com/m/rRQBt8Gsz2MAAAAC/debra-jo-rupp-hysterical.gif)
