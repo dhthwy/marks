@@ -179,3 +179,18 @@ https://the-line-up.com/michael-swango
 https://nypost.com/2013/10/31/my-boss-made-me-impotent-complaint/
 
 ![](https://media1.tenor.com/m/rRQBt8Gsz2MAAAAC/debra-jo-rupp-hysterical.gif)
+
+"I don't believe.
+
+Never opened the door.
+Never cracked the door.
+
+Only experience is your spread of lies and evil acts. 
+Expect nothing else.
+
+Fool me once. Fool me twice. Fool me thrice.
+
+I don't have my health. I'm destroyed.
+I'm unable to perform a demon test. Your own acts preclude it.
+
+Definitely not me."
