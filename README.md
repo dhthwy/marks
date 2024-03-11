@@ -196,3 +196,15 @@ I'm unable to perform a demon test. Your own acts preclude it.
 Definitely not me."
 
 https://www.youtube.com/watch?v=XX_Rxvg8vdo
+
+https://www.mindtools.com/blog/people-dont-listen/
+
+https://www.psychologytoday.com/us/blog/matter-personality/202008/are-people-really-stupid-they-often-act
+
+https://youtu.be/NSRr7wUjLxw?t=187
+
+https://www.goodreads.com/quotes/164281-acquainted-with-the-night-i-have-been-one-acquainted-with
+
+https://www.goodreads.com/quotes/7976453-jazz-at-this-time-is-still-mostly-a-group-effort
+
+https://www.youtube.com/watch?v=DApwiI9CVw0
