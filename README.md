@@ -213,3 +213,16 @@ https://www.nytimes.com/2009/07/26/education/edlife/26pompoms.html
 
 https://www.bezzydepression.com/discover/dep-lets-talk-about-it/health-what-its-really-like-going-through-a-major-depressive-episode/
 
+https://www.youtube.com/watch?v=QVtAIjfHAk0
+
+https://genius.com/Longwave-no-direction-lyrics
+
+https://www.goodreads.com/quotes/871919-so-we-re-damned-if-we-do-and-damned-if-we
+
+https://www.goodreads.com/quotes/8987219-once-i-get-under-the-water-however-i-can-t-hold
+
+https://www.goodreads.com/quotes/1193684-here-from-her-ashes-you-lay-a-broken-girl-so
+
+https://www.goodreads.com/quotes/11823404-time-can-feel-frozen-in-moments-of-terror-as-if
+
+https://www.goodreads.com/quotes/421527-i-walk-around-the-world-like-a-ghost-and-sometimes
