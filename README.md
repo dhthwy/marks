@@ -226,3 +226,7 @@ https://www.goodreads.com/quotes/1193684-here-from-her-ashes-you-lay-a-broken-gi
 https://www.goodreads.com/quotes/11823404-time-can-feel-frozen-in-moments-of-terror-as-if
 
 https://www.goodreads.com/quotes/421527-i-walk-around-the-world-like-a-ghost-and-sometimes
+
+https://www.securityweek.com/american-express-discloses-data-breach/
+
+https://bitwarden.com/
