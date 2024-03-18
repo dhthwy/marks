@@ -208,3 +208,8 @@ https://www.goodreads.com/quotes/164281-acquainted-with-the-night-i-have-been-on
 https://www.goodreads.com/quotes/7976453-jazz-at-this-time-is-still-mostly-a-group-effort
 
 https://www.youtube.com/watch?v=DApwiI9CVw0
+
+https://www.nytimes.com/2009/07/26/education/edlife/26pompoms.html
+
+https://www.bezzydepression.com/discover/dep-lets-talk-about-it/health-what-its-really-like-going-through-a-major-depressive-episode/
+
