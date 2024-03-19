@@ -234,3 +234,5 @@ https://bitwarden.com/
 https://www.goodreads.com/quotes/12064823-therefore-if-you-cannot-do-even-a-very-little-thing
 
 https://www.goodreads.com/quotes/9611809-mass-delusions-bear-consequences-they-lead-to-mass-graves
+
+https://www.goodreads.com/quotes/12065125-you-re-just-being-used-as-a-bitch-boy-jayce-to-evoke
