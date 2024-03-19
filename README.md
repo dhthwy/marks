@@ -230,3 +230,7 @@ https://www.goodreads.com/quotes/421527-i-walk-around-the-world-like-a-ghost-and
 https://www.securityweek.com/american-express-discloses-data-breach/
 
 https://bitwarden.com/
+
+https://www.goodreads.com/quotes/12064823-therefore-if-you-cannot-do-even-a-very-little-thing
+
+https://www.goodreads.com/quotes/9611809-mass-delusions-bear-consequences-they-lead-to-mass-graves
