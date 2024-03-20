@@ -236,3 +236,8 @@ https://www.goodreads.com/quotes/12064823-therefore-if-you-cannot-do-even-a-very
 https://www.goodreads.com/quotes/9611809-mass-delusions-bear-consequences-they-lead-to-mass-graves
 
 https://www.goodreads.com/quotes/12065125-you-re-just-being-used-as-a-bitch-boy-jayce-to-evoke
+
+https://www.huffpost.com/entry/google-employee-box-truck-parking-lot-rent_n_5628e98ae4b0aac0b8fbc7a4 -- a few known cases of googlers living in their vehicles to save money due to col. Google seems to like their employees on site. I don't know how they get insurance tho.
+
+https://www.fcc.gov/consumers/guides/porting-keeping-your-phone-number-when-you-change-providers -- careful with porting. I lost my # long ago after a botched port. If I had something actionable that doesn't waste bands to go nowhere. I'd act in a heartbeat.
+
