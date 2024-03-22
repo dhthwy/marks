@@ -241,3 +241,12 @@ https://www.huffpost.com/entry/google-employee-box-truck-parking-lot-rent_n_5628
 
 https://www.fcc.gov/consumers/guides/porting-keeping-your-phone-number-when-you-change-providers -- careful with porting. I lost my # long ago after a botched port. If I had something actionable that doesn't waste bands to go nowhere. I'd act in a heartbeat.
 
+https://www.brookings.edu/articles/the-labor-market-doesnt-have-a-skills-gap-it-has-an-opportunity-gap/
+
+https://nesslabs.com/dunning-kruger-effect
+
+https://quoteinvestigator.com/2016/05/03/expense/
+
+https://measuringstuff.com/5-things-that-have-a-50-50-chance-of-happening/
+
+
