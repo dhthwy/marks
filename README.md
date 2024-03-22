@@ -250,3 +250,5 @@ https://quoteinvestigator.com/2016/05/03/expense/
 https://measuringstuff.com/5-things-that-have-a-50-50-chance-of-happening/
 
 https://www.goodreads.com/quotes/180470-i-always-say-the-truth-is-best-even-when-we
+
+https://www.goodreads.com/quotes/12068806-their-fate-was-set-when-it-became-known-that-their
