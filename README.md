@@ -254,3 +254,5 @@ https://www.goodreads.com/quotes/180470-i-always-say-the-truth-is-best-even-when
 https://www.goodreads.com/quotes/12068806-their-fate-was-set-when-it-became-known-that-their
 
 https://www.youtube.com/watch?v=Yi-zuzIYznk
+
+https://realestate.usnews.com/real-estate/articles/the-guide-for-buying-land-building-a-house-or-buying-new-construction -- with the massive housing shortage causing astronomical prices, this seems the way to go. Buy the land and diy a home.
