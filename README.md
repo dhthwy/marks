@@ -256,3 +256,7 @@ https://www.goodreads.com/quotes/12068806-their-fate-was-set-when-it-became-know
 https://www.youtube.com/watch?v=Yi-zuzIYznk
 
 https://realestate.usnews.com/real-estate/articles/the-guide-for-buying-land-building-a-house-or-buying-new-construction -- with the massive housing shortage causing astronomical prices, this seems the way to go. Buy the land and diy a home.
+
+https://www.quora.com/Is-it-normal-to-feel-like-a-fool-after-being-with-a-narcissist/answer/Robert-Torbay?ch=10&oid=244594625&share=49f80d83&srid=RqZK&target_type=answer
+
+
