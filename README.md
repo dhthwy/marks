@@ -260,3 +260,5 @@ https://realestate.usnews.com/real-estate/articles/the-guide-for-buying-land-bui
 https://www.quora.com/Is-it-normal-to-feel-like-a-fool-after-being-with-a-narcissist/answer/Robert-Torbay?ch=10&oid=244594625&share=49f80d83&srid=RqZK&target_type=answer
 
 https://www.youtube.com/watch?v=kH5APw_SLUU -- nice hack. $40 air purifier using a box fan and hepa filter
+
+https://acidcow.com/pics/2439-longest-ear-hair-ever-in-the-world-5-pics.html
